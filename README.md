@@ -1,1 +1,1 @@
-# private-strippers
+# male strip shows
