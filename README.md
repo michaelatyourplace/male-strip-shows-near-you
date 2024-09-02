@@ -1,1 +1,1 @@
-# male-strip-shows-near-you
+# private-strippers
